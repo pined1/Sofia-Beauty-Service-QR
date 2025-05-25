@@ -1,0 +1,1 @@
+# Sofia-Beauty-Service-QR
